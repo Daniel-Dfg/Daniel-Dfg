@@ -1,1 +1,1 @@
-First-year student in CS (ULB, Belgium)
+Second-year student in CS (ULB, Belgium)
