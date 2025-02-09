@@ -8,7 +8,9 @@ Second-year student in CS (ULB, Belgium)
 
 
 **Get in touch** :
+
 [Mail](mailto:danieldefoing@gmail.com)
+
 [Discord](discordapp.com/users/720963652286414909)
 
 
