@@ -11,7 +11,7 @@ Second-year student in CS (ULB, Belgium)
 
 [Mail](mailto:danieldefoing@gmail.com)
 
-[Discord](discordapp.com/users/720963652286414909)
+[Discord](www.discordapp.com/users/720963652286414909)
 
 
 
